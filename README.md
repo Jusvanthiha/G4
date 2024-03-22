@@ -1,1 +1,6 @@
-# G4
+![Screenshot (16)](https://github.com/Jusvanthiha/G4/assets/144082659/ce31c20a-e857-44e7-9d1c-3fc93b9dd462)
+![Screenshot (17)](https://github.com/Jusvanthiha/G4/assets/144082659/bb4dbfda-ab24-457c-a3da-9b563ccc77cf)
+![Screenshot (18)](https://github.com/Jusvanthiha/G4/assets/144082659/23d3877b-f9d5-4741-a98c-e3d5e8b34caf)
+![Screenshot (19)](https://github.com/Jusvanthiha/G4/assets/144082659/793f7196-ed18-4e37-b716-3f50376ddde2)
+![Screenshot (20)](https://github.com/Jusvanthiha/G4/assets/144082659/539cbc4d-bedf-4ec9-88a9-424feb1e31cb)
+![Screenshot (21)](https://github.com/Jusvanthiha/G4/assets/144082659/a5eca80d-8fd7-4c45-bf62-132ae20c3b18)
